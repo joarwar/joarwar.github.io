@@ -1,2 +1,0 @@
-# joarwar.github.io
-CV
